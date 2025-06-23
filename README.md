@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://tt-01.pages.dev/">Twitter中文版</a>
 
-点击访问：<a href="https://cg11-1.pages.dev/">黑料社91</a>
+点击访问：<a href="https://pi25.pages.dev/">17吃瓜</a>
 
 
 
